@@ -1,0 +1,1 @@
+If you lose your compass try using a magnet and paper clip it should point north
